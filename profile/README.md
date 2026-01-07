@@ -1,5 +1,8 @@
 ## Unblocked games 
 
+<p dir="auto"><a href="https://unbl0cked-76.github.io/" rel="nofollow"><img src="https://raw.githubusercontent.com/Un-bloc-e-d-games-2026/.github/refs/heads/main/profile/unblocked2.png" alt="image_fx_ (6)" secured-asset-link="" style="max-width: 100%;">
+</a></p>
+
 ➡️<h1> <a href="https://unbl0cked-76.github.io/" rel="nofollow" target="_blank">Click To play Unblocked games >>></a></h1><br>
 ➡️<h1> <a href="https://play-unblocked.github.io/" rel="nofollow" target="_blank">Click To play Unblocked games 2 >>></a></h1><br>
 
