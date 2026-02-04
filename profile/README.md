@@ -1,6 +1,6 @@
- <h2><a href=https://k12edu.space" target="_blank">Click to play unblocked games 1 ></a></h2>
- <h2><a href=https://study66.online" target="_blank">Click to play unblocked games 2 ></a></h2>
-<a href=https://study66.online" target="_blank"><img alt="unblocked2.png" data-hpc="true" class="Box-sc-62in7e-0 eLrlvS" src="https://github.com/Un-bloc-e-d-games-2026/.github/blob/main/profile/unblocked2.png?raw=true"></a>
+ <h2><a href="https://k12edu.space" target="_blank">Click to play unblocked games 1 ></a></h2>
+ <h2><a href="https://study66.online" target="_blank">Click to play unblocked games 2 ></a></h2>
+<a href="https://study66.online" target="_blank"><img alt="unblocked2.png" data-hpc="true" class="Box-sc-62in7e-0 eLrlvS" src="https://github.com/Un-bloc-e-d-games-2026/.github/blob/main/profile/unblocked2.png?raw=true"></a>
 ---
 
 ## 🎮 Unblocked Games for School Breaks
